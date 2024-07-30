@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Leoghain
+- 👋 Hi, I’m @Leoghain, also known as Logan Bugenig
 - 👀 I’m interested in mechanical and/or aerospace engineering
 - 🌱 I’m currently learning about rocket propulsion and overall pursuing my baccelors in mechanical engineering
 - 😄 Pronouns: He/Him
