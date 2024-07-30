@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Leoghain
+- 👀 I’m interested in mechanical and/or aerospace engineering
+- 🌱 I’m currently learning about rocket propulsion and overall pursuing my baccelors in mechanical engineering
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I was raised on a sailboat traveling around the world
